@@ -4,7 +4,7 @@ My name is Joshua.
 
 Just started coding.
 
-Love reading books, watching movies, writing sth, and learning new things.
+Love reading books, writing sth, and learning new things.
 
 
 
