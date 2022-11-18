@@ -1,9 +1,7 @@
 ### 👽 Greetings!
 
 My name is Joshua.
-
 Just started coding. *real newb*
-
 Love reading books, watching movies, writing sth, and learning new things.
 
 
