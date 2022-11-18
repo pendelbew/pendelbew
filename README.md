@@ -2,7 +2,7 @@
 
 My name is Joshua.
 
-Just started coding. *real newb*
+Just started coding.
 
 Love reading books, watching movies, writing sth, and learning new things.
 
